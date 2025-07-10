@@ -1,4 +1,4 @@
-# Anees Burhan - Content Writer
+# Haseena banu - Content Writer
 
 Welcome to my personal website!  
 This site showcases my work, skills, and interests as a professional content writer.
